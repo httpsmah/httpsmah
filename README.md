@@ -7,6 +7,6 @@ Meu nome é Maria Fernanda
 - Utilizo esse espaço para minha organização e compartilhamento de dos meus projetos desenvolvidos.
 
 ### Caso queira entrar em contato comigo
-*Não entre*
+*Não entre*😙
 
 ![](https://media1.tenor.com/m/Ywy2QP1soHEAAAAC/cat-cutie.gif)
